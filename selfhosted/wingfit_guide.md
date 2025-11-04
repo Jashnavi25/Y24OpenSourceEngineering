@@ -38,7 +38,7 @@ You can now register, sign in, create blogs, and personalize your health dashboa
 📹 Demo Video
 
 Watch the full walkthrough here:
-👉 Google Drive Video Link: https://1drv.ms/v/c/5060fe2fb6c926e6/EalT6lgevbBHthXNisXd5PQBHoZc9GJFqmZo3YMtwiMutA
+👉 Google Drive Video Link: https://1drv.ms/v/c/5060fe2fb6c926e6/EQw3L-pNipRMtIZhc2UeATUBlyU4A1IZOsNLwPKhJmqx1g?e=zOLSpe
 
 🔗 LinkedIn Post:-
 (Check our post and community contribution update:)
